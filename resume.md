@@ -2,7 +2,7 @@
 
 Senior Technical Writer<br>
 480-213-1542 | jacqhendershot@gmail.com<br>
-https://www.linkedin.com/in/jacquelinehendershot/
+https://www.linkedin.com/in/jacquelinehendershot/<br>
 https://jacquelinehendershot.journoportfolio.com/
 
 ## SUMMARY OF QUALIFICATIONS
