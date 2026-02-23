@@ -1,6 +1,6 @@
 # Jacqueline Hendershot
 
-Senior Technical Writer
+Senior Technical Writer<br>
 480-213-1542 | jacqhendershot@gmail.com
 https://www.linkedin.com/in/jacquelinehendershot/
 https://jacquelinehendershot.journoportfolio.com/
